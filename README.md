@@ -1,5 +1,4 @@
-# kama
-kama
-Om Kamdeva Vidyamahe,
-Rati Priyaye Dhimahi, 
-Tanno Ananga Prachodayat
+# काम
+ऊँ कामदेवाय विद्यामहे,
+रति प्रियाय धीमत्
+तनोति अनङ्ग प्रार्थित
